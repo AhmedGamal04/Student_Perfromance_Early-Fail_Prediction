@@ -195,7 +195,7 @@ they are **not** evidence of a causal driver of student failure.
 - [Moustafa Fouad]
 - [Ibrahim Amin]
 
-**Instructor:** [Rawan Mohamed]
+**Instructor:** [Eng. Rawan Mohamed]
 
 ---
 
